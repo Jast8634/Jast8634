@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jacob Starkel
+- 👀 I’m seeking an entry level position in aerospace engineering.
+- 🌱 I’m currently enrolled at The University of Colorado - Boulder as a Senior where I am studying:
+- 🌱 Senior Design, Technical Comm. & Design, Project Management Systems, and Aircraft Design
+- 📫 Jast8634@colorado.edu
